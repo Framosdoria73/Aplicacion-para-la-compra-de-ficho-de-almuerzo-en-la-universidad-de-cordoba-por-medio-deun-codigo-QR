@@ -4,3 +4,5 @@ Mediante esta aplicación se quiere permitir que los estudiantes de la Universid
 
 
 Samith Ochoa Ospino (institucional)
+
+Fredy Ramos Doria (Creador de repositorio)
