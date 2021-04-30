@@ -7,4 +7,4 @@ Samith Ochoa Ospino (institucional)
 
 Fredy Ramos Doria (Creador de repositorio)
 
-Orlando ortega profesor  por razones  que no entiendo no me deja trabajar desde mi correo institucional ya que la aplicacion no me deja solo con mi correo personal espero que me entienda gracias feliz taede  
+Orlando ortega profesor  por razones  que no entiendo no me deja trabajar desde mi correo institucional ya que la aplicacion no me deja solo con mi correo personal espero que me entienda gracias feliz tarde  
